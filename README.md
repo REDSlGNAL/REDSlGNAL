@@ -6,6 +6,10 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vqck2xnl327xecntooe7ptxtrq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vqck2xnl327xecntooe7ptxtrq&redirect=true)
 
+![](https://64.media.tumblr.com/e75901fa8329abe456f3c73cbe1a36ac/147e422eed2ecc0d-e5/s250x400/0f1d358fccf192bbe34caae60ecb2a8737eb0b13.gifv)
+
+![](https://64.media.tumblr.com/17f46c31faf9154e2dc4f9cc7a52433f/5ffe864cc72d3596-e5/s100x200/0154f18aa51361ff54a5db73005887128ceafa85.gifv) ![](https://64.media.tumblr.com/8fcc5763a5dbf0e5ca939da98285b34e/5ffe864cc72d3596-78/s250x400/b84f608c912b60898ac706b833531adb2b8621c3.pnj) ![](https://64.media.tumblr.com/10a37fcb0f1aa255ff52a5f05442b9a5/b08a7d822e18cbed-cd/s100x200/47798af96aa02976623ba898cc2edc1c6c20ec85.pnj)
+
 ![](https://64.media.tumblr.com/354063e3ef7eee7137a9366079138db4/4309b18b7b95e021-23/s1280x1920/de081e012666f8e37cca27cb555eb78616985c4b.pnj)
 [**bunny for the big cat**](https://github.com/gear4delts)
 
